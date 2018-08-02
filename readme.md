@@ -1,0 +1,1 @@
+"People are'nt smart, peolple are dumb stupid panicky animals. A person is smart."
